@@ -30,6 +30,7 @@ To bring with:
 - celery salt
 - 1 pack nutritional yeast
 - 1 pack sesame seeds
+- 4 packs good veg stock
 
 Can buy there:
 - several cloves garlic
@@ -40,7 +41,7 @@ Can buy there:
 
 To bring with:
 - large bottle white or cider vinegar
-- large bottle dark soy sauce
+- large bottle Tamari (NOT SOY for GF)
 - 10 cartons vegan milk
 - 2 bottles hot sauce
 - 1 small btl sesame oil
@@ -61,11 +62,13 @@ Can buy there:
 ## Grains
 
 To bring with:
+- few packs GF pea or beetroot pasta
 - few packs quinoa
 - few packs cous-cous
 - 12 naan breads
 - 24 tortillas
 - few packs vegan tortilla chips
+- GF crisps like Quinoa puffs (https://www.tesco.com/groceries/en-GB/products/297519360), White cheddar and mediterranean are best flavours
 
 Can buy there:
 - pasta
@@ -90,10 +93,10 @@ Can buy there:
 ## Protein
 
 To bring with:
-- several packs Vivera bacon
-- 6 packs Naked Glory sausages
-- fake sliced meats (if reasonably priced)
-- wheat gluten or seitan
+- several packs Vivera bacon (GF)
+- 6 packs GF vegan sausages
+- fake sliced meats (if reasonably priced and preferably GF)
+- seitan (covered by Liam already)
 - green lentils
 - 2 packs green split peas
 - 2 packs yellow split peas
@@ -112,26 +115,29 @@ To bring with:
 - 2 packs vegan butter
 - 6 packs of a good vegan cheese (smoked applewood from asda or violife block/shredded)
 - 2 packs vegan cream or similar
-- 12 vegan store-bought pizzas
+- 11 vegan store-bought pizzas
 - cheese spread
 
 ---
-# Meals we make with the above
+# Meal ideas
 
-We can get a nice main and starter out of the above.
+Each of these ideas has a main and starter and is already GF, or can be made GF through a single easy substitution. 
 
 ## Dinners
-- lentil daal with rice / green salad
+- lentil dal with rice / green salad
 - cheese and bacon pasta / roast veg
 - garlic tofu scallops and chips / macho peas
 - refried bean burritos / fresh salsa and tortilla chips
 - split pea stew with rice and veg / patatas bravas
-- pizza night (low effort)
 - tofu katsu curry / pak choi salad
 
 ## Lunches
 
 This is a bit looser; we can make sandwiches, burritos etc.
+
+Bangers and mash if we get GF sausages.
+
+Can bake our own breads for the wheat-munchers.
 
 Open to ideas here.
 
