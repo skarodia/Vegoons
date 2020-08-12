@@ -125,9 +125,9 @@ We can get a nice main and starter out of the above.
 - cheese and bacon pasta / roast veg
 - garlic tofu scallops and chips / macho peas
 - refried bean burritos / fresh salsa and tortilla chips
-- split pea stew with potatoes and veg / patatas bravas
+- split pea stew with rice and veg / patatas bravas
 - pizza night (low effort)
-- tofu katsu curry /pak choi salad
+- tofu katsu curry / pak choi salad
 
 ## Lunches
 
