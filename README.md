@@ -94,6 +94,14 @@ Can buy there:
 - carrots
 - broccoli
 
+## Tins
+
+To bring with:
+- 3 tins coconut milk
+
+Can buy there:
+- chopped tomatoes
+
 ## Protein
 
 To bring with:
