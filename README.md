@@ -17,12 +17,13 @@ Once this list is OK'd we will allocate folks (preferably those who have cars an
 
 To bring with:
 - 1 large packet flat-leaf parsely
-- 1 large packet coriander
+- 2 large packet coriander
 - 1 parsely plant (for later in week to keep fresh)
 - 1 coriander plant
 - 1 basil plant
-- 1 knob ginger
+- 3 knobs ginger
 - 3 packs chillis (any kind)
+- 1 pack chillis (red)
 - 1 mill of uncracked black pepper (not pre-ground)
 - dried paprika
 - dried cumin
@@ -31,6 +32,7 @@ To bring with:
 - 1 pack nutritional yeast
 - 1 pack sesame seeds
 - 4 packs good veg stock
+
 
 Can buy there:
 - several cloves garlic
@@ -81,8 +83,10 @@ Can buy there:
 To bring with:
 - durian
 - pak choi
+- aubergines x 3
 
 Can buy there:
+- mushrooms
 - tomatoes
 - onions/red onions
 - potatoes
@@ -117,6 +121,7 @@ To bring with:
 - 2 packs vegan cream or similar
 - 11 vegan store-bought pizzas
 - cheese spread
+- coconut soy yoghurt
 
 ---
 # Meal ideas
