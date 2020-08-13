@@ -29,9 +29,9 @@ To bring with:
 - dried cumin
 - dried cayenne pepper
 - celery salt
-- 1 pack nutritional yeast
+- 1 pack nutritional yeast (SK got)
 - 1 pack sesame seeds
-- 4 packs good veg stock
+- 4 packs good veg stock (SK got)
 
 
 Can buy there:
@@ -45,7 +45,7 @@ To bring with:
 - large bottle white or cider vinegar
 - large bottle Tamari (NOT SOY for GF)
 - 10 cartons vegan milk
-- 2 bottles hot sauce
+- 2 bottles hot sauce (SK has saracha, and hot pepper sauce)
 - 1 small btl sesame oil
 
 Can buy there:
@@ -58,7 +58,7 @@ Can buy there:
 
 Can buy there:
 - tea
-- instant coffee
+- instant coffee (SK got)
 - ground coffee (if we have cafetieres)
 
 ## Grains
@@ -73,7 +73,7 @@ To bring with:
 - GF crisps like Quinoa puffs (https://www.tesco.com/groceries/en-GB/products/297519360), White cheddar and mediterranean are best flavours
 
 Can buy there:
-- pasta
+- pasta (SK got a small bag)
 - rice
 - flour
 - bread
@@ -94,20 +94,12 @@ Can buy there:
 - carrots
 - broccoli
 
-## Tins
-
-To bring with:
-- 3 tins coconut milk
-
-Can buy there:
-- chopped tomatoes
-
 ## Protein
 
 To bring with:
 - several packs Vivera bacon (GF)
-- 6 packs GF vegan sausages
-- fake sliced meats (if reasonably priced and preferably GF)
+- 6 packs GF vegan sausages (SK got 4 packs)
+- fake sliced meats (if reasonably priced and preferably GF) (SK got 2 packs)
 - seitan (covered by Liam already)
 - green lentils
 - 2 packs green split peas
